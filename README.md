@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kzyno
+- Ma passion : Jeux Vidéos
+- Je tente de rentrer à 42
+- Mon fidèle acollite SlouSlou
+- J'ai 19 ans
